@@ -17,7 +17,10 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1rNFLfeM_8TGfJXeYKchuGFKvnA20xlzm/edit?usp=sharing&ouid=112410949155128770473&rtpof=true&sd=true](https://docs.google.com/document/d/1rNFLfeM_8TGfJXeYKchuGFKvnA20xlzm/edit?usp=sharing&ouid=112410949155128770473&rtpof=true&sd=true)
 
-- ⚡ Fun fact **i think im funny**                                                                                 https://media.giphy.com/media/2IudUHdI075HL02Pkk/giphy.gif
+- ⚡ Fun fact **i think im funny**
+  ![68747470733a2f2f6d69726f2e6d656469756d2e636f6d2f6d61782f313336302f302a37513379765349765f7430696f4a2d5a2e676966](https://github.com/Taimbur/Taimbur/assets/118272408/7e8036ef-59c9-4e1d-a27e-162dbcb54b7a)
+
+                                                                      
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
